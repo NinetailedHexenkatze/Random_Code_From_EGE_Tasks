@@ -1,0 +1,1 @@
+# Random_Code_From_EGE_Tasks
